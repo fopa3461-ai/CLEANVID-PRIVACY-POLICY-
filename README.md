@@ -1,2 +1,2 @@
-# CLEANVID-PRIVACY-POLICY-
-This is CLEANVID S PRIVACY POLICY 
+# Utility box-PRIVACY-POLICY-
+This is utility boxer's PRIVACY POLICY 
